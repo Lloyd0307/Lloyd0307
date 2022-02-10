@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Lloyd0307
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in ...dog
+- 🌱 I’m currently learning ...live
+- 💞️ I’m looking to collaborate on ...kukmullzzang
 - 📫 How to reach me ...kinnynz0307@gmail.com
 
 <!---
